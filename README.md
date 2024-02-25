@@ -1,1 +1,7 @@
 ![image](https://github.com/sathyanand-dev/Socifyy/assets/109585292/98cdeb1c-9e69-48bb-a95b-8cc6bb4b3bee)
+![image](https://github.com/sathyanand-dev/Socifyy/assets/109585292/ef265e03-522c-461a-92e7-f28645cad0c6)
+![image](https://github.com/sathyanand-dev/Socifyy/assets/109585292/5bb903b3-5fc9-4643-91bb-af29cc7c9914)
+![image](https://github.com/sathyanand-dev/Socifyy/assets/109585292/95464fdf-6767-45f7-9c39-3f58ad3ca2e7)
+![image](https://github.com/sathyanand-dev/Socifyy/assets/109585292/f50eedc9-c394-462f-a104-c4acba727a07)
+![image](https://github.com/sathyanand-dev/Socifyy/assets/109585292/972ce561-6d19-4f91-a7eb-2575a9b9550e)
+![image](https://github.com/sathyanand-dev/Socifyy/assets/109585292/329672ab-a5c8-402e-9ea8-ddca324ad973)
